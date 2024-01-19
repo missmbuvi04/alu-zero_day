@@ -1,1 +1,1 @@
-The school is interesting.
+The school is interesting
